@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ttanu6106@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/ttanu/Downloads/TANU%20TRIAPTHI%20RESUME%20.pdf](file:///C:/Users/ttanu/Downloads/TANU%20TRIAPTHI%20RESUME%20.pdf)
+- 📄 Know about my experiences [file:///C:/Users/ttanu/Downloads/TANU%20TRIAPTHI%20RESUME%20.pdf]"C:\Users\ttanu\Downloads\tanutripathi.resume.pdf"
 
 - ⚡ Fun fact **I am funny**
 
